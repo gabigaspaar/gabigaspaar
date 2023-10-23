@@ -8,6 +8,6 @@ amo stray kids
 
 ![stray_kids_capa](https://github.com/gabigaspaar/gabigaspaar/assets/140357499/6e9f50c3-670c-42a6-8f6a-98ea0694ba02)
 
-gosto de cachorros
+gosto de avatar
 
-![download](https://github.com/gabigaspaar/gabigaspaar/assets/140357499/1b54297c-e44e-4996-a17e-b4693d3950c9)
+![avatar-resmastered-bluray-james-cameron-1](https://github.com/gabigaspaar/gabigaspaar/assets/140357499/8459752c-d89c-46df-a120-e60974211762)
